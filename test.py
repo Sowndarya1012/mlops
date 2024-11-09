@@ -1,1 +1,0 @@
-#sedrtyuiop[and]
